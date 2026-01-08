@@ -24,44 +24,43 @@ Brown packaging tapes
 Transparent packaging tapes
 Printed packaging tapes
 Heavy-duty carton sealing tapes
-
 These packaging tapes in Bangalore are widely used in logistics, warehousing, e-commerce, and export industries.
-2. Double Sided Tape Suppliers in Bangalore
+
+3. Double Sided Tape Suppliers in Bangalore
 As a leading double sided tape supplier in Bangalore, Tapes World provides:
 Tissue double sided tapes
 Polyester double sided tapes
 Acrylic double sided tapes
 Foam double sided tapes
-
 These tapes are ideal for signage, branding, mounting, lamination, and industrial bonding.
+
 3. Masking Tape Suppliers in Bangalore
 If you are searching for masking tape suppliers in Bangalore, Tapes World offers:
 General purpose masking tapes
 Automotive masking tapes
 High temperature masking tapes
-
 Used extensively in painting, powder coating, automotive, and fabrication industries, these tapes provide clean removal and strong adhesion.
-4. Foam Tape Suppliers in Bangalore
+
+5. Foam Tape Suppliers in Bangalore
 Tapes World is a trusted foam tape supplier in Bangalore, supplying:
 PE foam tapes
 EVA foam tapes
 Acrylic foam tapes
-
 Foam tapes are widely used for insulation, vibration damping, sealing, and mounting applications.
+
 5. Electrical & Insulation Tape Suppliers in Bangalore
 As one of the most reliable electrical tape suppliers in Bangalore, Tapes World supplies:
 PVC insulation tapes
 Electrical insulation tapes
 Heat resistant tapes
-
 These tapes meet industry safety standards and are used across electrical, electronics, and HVAC industries.
-6. Industrial Tape Suppliers in Bangalore
+
+7. Industrial Tape Suppliers in Bangalore
 For heavy-duty applications, Tapes World is among the best industrial tape suppliers in Bangalore, offering:
 Duct tapes
 Filament tapes
 Aluminum foil tapes
 VHB tapes
-
 These industrial adhesive tapes in Bangalore are designed for strength, durability, and performance.
 
 Industries Served by Tapes World in Bangalore
